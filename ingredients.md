@@ -1,4 +1,4 @@
-* 1 tbsp coriander
+* 1/2 tbsp coriander
 * chilli flakes
 * 2 avacados
 * 1 lime
